@@ -1,5 +1,7 @@
 ⌈ Oi, meu nome é Vinicius Vatanabi... 🦖 ⌋
-⌈ Conhecido, principalmente, como Yukio. 🌩 ⌋
+
+⌈ Conhecido como Yukio. 🌩 ⌋
+
 ⌈ E eu estou co-criando um futuro melhor!! 🐉 ⌋
 
 <!---
